@@ -2,7 +2,7 @@
 
 archive password:123123
 
-🎨 Crack Wallpaper Engine. 🚀 
+🎨 Wallpaper Engine. 🚀 
 
 ![browser_w5MaqxEwwG](https://github.com/user-attachments/assets/e3dfabb0-7b63-4ec6-9476-1c4c3e594438)
 
